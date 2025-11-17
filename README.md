@@ -2,3 +2,4 @@
 Andi Nurcahyana/312510201
 
 ##🧨
+## 🧨 LATIHAN
